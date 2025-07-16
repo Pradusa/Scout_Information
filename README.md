@@ -1,2 +1,0 @@
-# Scout_Information
-s
